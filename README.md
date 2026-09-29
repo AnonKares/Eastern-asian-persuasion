@@ -3,7 +3,7 @@
 
 Hot Eastern Feminineboy(femboy)/feminineman(fem-man) Asian Persuasion (HEFAP) & Handsomely Pretty eastern asian manliness persuasion (HPEAMP) & handsomely rough eastern asian manliness persuasion (HREAMP)  a branch of era scheme and weasc
 
-this is basically for pretty cute femboys or men and handsomely pretty men and femboys
+this is basically for pretty cute east Asian femboys or men and handsomely pretty men and femboys
 
 
 the group is a branch of weasc and supporter of eastern RAAN society so it providers members and would be members with 3 opportunities from poverty:
