@@ -1,8 +1,12 @@
 # Eastern asian persuasion
 
+a branch of ERA and weasc
+
 (HEFAP) & (HPEAMP) & HREAMP
 
-Hot Eastern Feminineboy(femboy)/feminineman(fem-man) Asian Persuasion (HEFAP) & Handsomely Pretty eastern asian manliness persuasion (HPEAMP) & handsomely rough eastern asian manliness persuasion (HREAMP)  a branch of ERA and weasc
+Hot Eastern Feminineboy(femboy)/feminineman(fem-man) Asian Persuasion (HEFAP)
+& Handsomely Pretty eastern asian manliness persuasion (HPEAMP) 
+& handsomely rough eastern asian manliness persuasion (HREAMP)  
 
 this is basically for pretty cute east Asian femboys or men and handsomely pretty men and femboys
 
