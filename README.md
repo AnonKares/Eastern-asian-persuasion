@@ -2,7 +2,7 @@
 
 a branch of ERA and weasc
 
-(HEFAP) & (HPEAMP) & HREAMP
+HEFAP-HPEAMP-HREAMP
 
 Hot Eastern Feminineboy(femboy)/feminineman(fem-man) Asian Persuasion (HEFAP)
 & Handsomely Pretty eastern asian manliness persuasion (HPEAMP) 
